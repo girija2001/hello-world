@@ -2,4 +2,4 @@
 
 
 Hey, this is girija
-I am from JSSTU
+I am from JSSTU college
